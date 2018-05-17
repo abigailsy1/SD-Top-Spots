@@ -1,0 +1,1 @@
+A collection of San Diego's finest top spots to visit.
